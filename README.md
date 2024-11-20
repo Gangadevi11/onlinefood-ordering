@@ -1,1 +1,19 @@
-# onlinefood-ordering
+![Screenshot (27)](https://github.com/user-attachments/assets/70e981d3-4fb0-465d-b8a5-9f63ce10d805)
+![Screenshot (28)](https://github.com/user-attachments/assets/dcc29683-9dc2-43ff-9a42-09583c1dcc40)
+![Screenshot (29)](https://github.com/user-attachments/assets/5adf6bbe-f2e6-4849-864c-cee76a28ea9c)
+![Screenshot (30)](https://github.com/user-attachments/assets/af5dcaa8-9942-4636-be9d-2b91990b0cc8)
+![Screenshot (31)](https://github.com/user-attachments/assets/d8bd6753-8cf0-44a6-8900-eccbc42d1b1c)
+![Screenshot (32)](https://github.com/user-attachments/assets/fa520eca-20cf-4649-8e55-c22b71b3a6ba)
+![Screenshot (33)](https://github.com/user-attachments/assets/d4f11ccc-241b-4cdd-b0f7-359c8a2fdd0c)
+![Screenshot (34)](https://github.com/user-attachments/assets/b3bb971e-9112-4e40-a717-4627611b50cc)
+![Screenshot (35)](https://github.com/user-attachments/assets/98c54f7c-8d9e-4adb-b727-33d8aa276184)
+![Screenshot (36)](https://github.com/user-attachments/assets/a9cc0ecc-a6a9-4845-ad28-489549111daf)
+![Screenshot (37)](https://github.com/user-attachments/assets/6ef3991a-5c8a-4a90-8130-e74d11e17ecf)
+![Screenshot (38)](https://github.com/user-attachments/assets/797d9560-e97e-4b91-8cae-f1e321d97a42)
+![Screenshot (39)](https://github.com/user-attachments/assets/3ba9ea36-1e26-41db-abf
+![Screenshot (40)](https://github.com/user-attachments/assets/234c4576-1990-4ade-9a2a-8f9df138e9f5)
+6-cf0dbfda5fcf)
+![Screenshot (41)](https://github.com/user-attachments/assets/30ff6eea
+![Screenshot (42)](https://github.com/user-attachments/assets/a24a4425-206e-45a0-a4f5-2ea795684876)
+-574e-4e4b-a3d7-092e49d8ad97)
+![Screenshot (43)](https://github.com/user-attachments/assets/530d9e6f-afc9-4454-a200-7553eba01f23)
